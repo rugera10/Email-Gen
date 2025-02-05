@@ -15,3 +15,5 @@ Ihr könnt gerne auf mein discord Server kommen wir haben viele Fortnite Account
 
 https://discord.gg/KzBMsTfV49
 Discord Name: rugera1.0
+
+![image alt](https://github.com/rugera10/Email-Gen/blob/main/Screenshot%202025-02-06%20002802.png?raw=true)
